@@ -1,3 +1,6 @@
-# aplikasi_cafe
+© 2025 — Disusun oleh<br>
 
-Amrina Rosada 
+**Putri Angel Li**<br>
+**Fellisa Anastasya**<br>
+**Amrina Rosada  Putri**<br>
+**Putri Reda Maulidia**<br>
